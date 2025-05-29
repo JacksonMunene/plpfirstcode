@@ -17,7 +17,7 @@ This is `fjnjnf` njhjbj
 <p> uhjj</p>
 ```
 [mghghfg](https:ygjhghh)
-~~ Me ~~
+~~Me~~
 | Header | HRBFH | JGTNJTG |
 | --- | --- | --- |
 | Header | HRBFH | JGTNJTG |
